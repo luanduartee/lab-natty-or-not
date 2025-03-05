@@ -1,0 +1,15 @@
+Em uma cidade onde o extraordinário era apenas uma fantasia distante, vivia Lucas, um garoto de 16 anos que sempre se sentiu um estranho em seu próprio mundo. Desde pequeno, Lucas demonstrava habilidades que ninguém conseguia explicar: objetos flutuavam ao seu redor quando ele se irritava, portas se fechavam sozinhas quando ele queria se isolar, e, em momentos de intensa emoção, a realidade ao seu redor parecia se distorcer, como se fosse um reflexo em um lago agitado.
+
+Infelizmente, ao invés de admiração, essas habilidades só trouxeram sofrimento. Na escola, Lucas era alvo constante de bullying, especialmente por parte de Davi, o típico valentão que via em Lucas um alvo fácil por ser 'diferente'. Os colegas riam, zombavam e o apelidavam de "Aberração". Cada risada, cada empurrão, alimentava uma tempestade silenciosa dentro do garoto.
+
+Uma noite, depois de um dia particularmente cruel, Lucas fugiu para seu refúgio secreto — um velho galpão abandonado na periferia da cidade. Lá, em meio às sombras, a raiva transbordou. Sem perceber, ele fez as paredes do galpão ondularem como se fossem de borracha, e pedaços de metal flutuaram, girando ao redor dele. Lucas caiu de joelhos, assustado com a magnitude de seu próprio poder.
+
+Foi então que conheceu Elias, um homem misterioso que observava Lucas há algum tempo. Elias revelou que também possuía habilidades especiais e fazia parte de uma rede secreta de pessoas como eles, treinando jovens dotados para controlarem seus dons. "O poder sem controle é uma maldição", disse Elias, oferecendo ajuda.
+
+A jornada de Lucas começou ali. Sob a tutela rígida de Elias, ele aprendeu a dominar sua telecinese e, mais desafiador ainda, sua capacidade de manipular a realidade — dobrando o espaço, alterando pequenos eventos ao seu redor, criando ilusões. Lucas percebeu que seu poder não era apenas destrutivo; ele podia proteger, restaurar e inspirar.
+
+O momento de sua virada aconteceu quando um incêndio tomou conta de sua escola. Preso nas chamas, estava Davi, o mesmo garoto que o aterrorizou por anos. Lucas, agora forte e confiante, usou seus poderes para abrir caminho pelas chamas, conter o fogo e salvar Davi. O valentão, em choque, só conseguiu murmurar um "obrigado".
+
+Depois daquele dia, Lucas adotou o nome de "Vórtice", simbolizando sua capacidade de dobrar a realidade e controlar a energia ao seu redor. Ele se tornou o herói da cidade — não por vingança, mas pela decisão consciente de ser aquilo que nunca foi para ele: uma esperança.
+
+Agora, Lucas patrulha as ruas, protegendo os indefesos e provando que até mesmo aqueles que sofreram nas sombras podem brilhar como luzes no horizonte. Sua luta não é apenas contra o crime, mas contra a crença de que ser diferente é algo a ser temido. Porque, no fim, o verdadeiro poder é usar quem você é para tornar o mundo um lugar melhor.
